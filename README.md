@@ -58,9 +58,11 @@ https://www.youtube.com/watch?v=SNYlnz5kuGk&list=PLKK49GA1zO1PID54P_os5lgUayICIj
 Social Profiles:   
 
 ////////////////  
-  
+
 Facebook: https://www.facebook.com/aprincessplays  
 Instagram: https://www.instagram.com/aprincessplays  
 Pinterest: https://www.pinterest.com/aprincessplays  
   
 ///////////////  
+
+Licensed under [CC BY-NC-ND 4.0](https://creativecommons.org/licenses/by-nc-nd/4.0/)
